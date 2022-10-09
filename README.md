@@ -36,3 +36,40 @@ I have no idea how many lives, familes, people this is going to destroy. But if 
 I am not special I am not unique. This probably happened to all my cousins, to all my aunts and uncles, to all our nieces and nephews. This is a multi generational problem I believe. I am not accusing anyone or placing blame on anyone. What I am about to write is bullshit that would need to be checked out. But if i were to weave the tale of my family I would start with Craig's Dad. I would tell a tale about a man who molested his neighbors and his son. Tunred his son and his daughter inlaw into copies of himself. They were let loose on Orange crest and created copies of themselves to lure in the neighborhood kids so that they could fulfill thier sick desires. I have no hate or anger for anyone, but the questions i need answers to no one wants to talk to me about it. Like was my mom's generation molested by Craigs Dad? How much does Elvia know about Craig? When she told my mom he told her he molested his daughters was that a ploy to see how my mom would react to her sister being a child Molestor. What happened to Chris and Elisa? And was my brother like Rachel or was he like Me? I am really worried at this point the killer is inside the house. I am so glad I had Amy call the cops. I need help that it seems like people around me dont want me to get. 
 
 -Aaron Gonzales 
+
+
+## Update
+
+After filing a report with the child abuse hotline. Talking to police and telling them everything about child porn on our home computer. My dad having pornography that was a dubbed tape of a 1970's Kay Parker film called Incest that I found when I was a little kid. Adam and Dad started acting really weird. I understand that they are pretty limited in thier capacity. So I have been spilling my guts on Text Messages to Christopher Valenzuela, a possible survivor or predator. I shared this git with him and with a college buddy and he said. You dont want to make me your enemy or You mine. So that tells me something is going on. I am at my wits end and I have decided the only thing I can try and do is to save myself. I will Recount as much as I can right now while everything is still fresh. I will then make this git public share it with Will and tell him if he doesnt hear from me please give this to police. 
+
+## Incident 1
+
+The first memeory i have is my grandma catching Rachel Laying on me. My pants are unbuttoned and so are hers and she is mimicing sex. I dont understand what is happening at the time but i understand we are getting in trouble. The questions I have a terrifying. Does my grandma know that little kids do this because her children were being Molested by Craig's dad and she is stupid enough to believe that normal kids do this? Does she not tell anyone about this? Why does Rachel know how to do this at such a young age. The answers to those questions are things that we all need to clarify going forward. 
+
+## Incident 2 
+
+The second memory i have is utterly pulverizing. I am being directed by Craig. I think he is holding a camera or poloroid and he is directing me to put my fingers inside his baby daughter while his older daughter is laying next to us masturbating. I am terrifyed and just doing what they say. I can only get a little bit into this memory before my brain shuts me off and doesnt give me more to work with. 
+
+## Incident 3
+
+The next thing that comes to me is that I am about 8 or 9. I am not really sure but we have the family computer and Adam is sitting on the computer showing me how to hide and unhide a special folder on the computer. The folder contains a lot of pictures of Child Porn, Bestiality, and Playboy models I think. He is giggling and showing me. I feel like he has been abused and he is proud of the abuse, and may have took pleasure in abusing others. 
+
+## Incident 4
+
+This is the most terrifying incident I can recount. Its only context is that I am taking a bath/shower with Chris. I remember telling my mom I dont want to take showers with my cousins that I want to take a shower alone. But she is telling me its no big deal and that we have to save water. Probably the lie Elvia and Craig tell themselves. But the memory is of Chris laying ontop of me. We are both so young that our penis' do not get hard. In the memory I am thinking why are we doing this. It seems like its something we have been trained to do. 
+
+## Incident 5
+
+I am unsure if this is a memory or a feeling. But I am almost positive that Elvia and Craig wanted me and Chris to spend the night at thier house to make it easier for Craig to molest us. My mom told me about 10 years ago that Craig admitted to molesting Rachel and Allison. I thikn that is a lie. I believe that Elvia is a predator and she was seeing how breaking the news to my mom about someone she loves is a predator to see her reactoin. The feeling I get is that I am scared because me and Chris are in the shower with Craig and in comes Elvia. She is holding towels and CHris has this look of fear in his eyes. She smiles at Craig leaves the towels on the closed toilet. Leaves the room and closes the door behind us. The terrifying thing is that we are taking a shower with Craig in his Masterbedroom Shower. 
+
+## I love you all But 
+
+I aint got no more time to live with people who are abusing me. Physically, Emotionally, and Sexually. The sexual abuse might have stopped. I'm still trying to figure out what made Craig stop the abuse. I have a feeling that I challenged him. My smart little ass said Fine ill go to jail and get out when im 18 and you will go to jail forever. I'm not sure if thats my psyche making that up to make me feel better. But its something that I hope is true but probably isn't. I am still recovering my memories. Dad I love you, you are stupid, and I dont know if you were all buddy buddy with Craig. Stupid people do stupid things. Look at Adam's life. Only a low life would be proud of threatening to beat up a Kid by corralling all the people he knew because he is too scared to confront someone alone. Only a moron would get taken in by check fraud and only a fool would trust the word of a mentally ill person. I know why you dont want to get him help. It's the same reason Adam didn't wnat to help lola. He didnt give a shit and was just waiting for her to die. You guys want to know why that dog went down hill so fast. Adam is so stupid he played way too ruff with here that when I got to that poor baby I had to watcher her day and night for 36 hours till we got her some help and put her down. You are all staying silent and that is your choice I cant help that. But I will not stay silent. I will write books. I will go back to school. I will make a great name for myself despite this. If you ever need me I will always be there because I love you. But I can't be around people who are in such denial they can't even bring themselves to ask some hard questions. 
+
+# I hope you all change your ways. If you can't be honest with yourselves how's it going to be when you have to see Grandma and God. I am getting right to see her again.
+
+# Mom i Still love you, I will never give up on you or Dad 
+# Amy We have our Differences but I never tried to screw you over. yeah i teased and retaliated you
+# Dad you make me so angry that you can't see I am just trying to warn you all that the police will find all the stuff you do. EVEN ON YOUR IPAD
+# Nini, Chris, I have no idea what your part in this is I can only assume since you are staying so quiet that I shouldn't contact you anymore
+# The Rest of the World. I Love myself more than others. If it took me being Abandonded by my family so be it. I wont stop trying to be better than the day before
